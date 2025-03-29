@@ -1,2 +1,2 @@
-# indian
+
 i love myself
