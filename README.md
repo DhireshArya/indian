@@ -1,2 +1,2 @@
 
-i love myself
+i love myself.
